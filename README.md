@@ -1,0 +1,2 @@
+# akazakt.github.io
+School
